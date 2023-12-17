@@ -7,4 +7,5 @@
 - [Facebook Groups for Aurora](https://www.facebook.com/groups/AuroraIceland)
 - [Stay Warm while photoshooting the aurora](https://www.travelfoss.com/how-to-stay-warm-while-photo-shooting-the-northern-lights-aurora-borealis/)
 - [How to chase the Northern Lights - All the details](https://www.travelfoss.com/how-to-chase-the-northern-lights-aurora-borealis/)
+- [Forecast the Northern Lights](https://www.travelfoss.com/how-to-chase-the-northern-lights-aurora-borealis/)
    
